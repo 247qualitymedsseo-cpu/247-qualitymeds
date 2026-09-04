@@ -1,4 +1,4 @@
-# Rare Genetic Disease Medicines in India
+# Rare Genetic Disease Medicines Supply in India Through Named Patient Program
 
 Rare genetic conditions may require specialised medicines that are not routinely available through every local supply channel. Treatment selection, dosage and ongoing monitoring must be determined by an appropriately qualified healthcare professional.
 
