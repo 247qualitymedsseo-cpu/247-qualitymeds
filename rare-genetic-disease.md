@@ -2,8 +2,7 @@
 
 Rare genetic conditions may require specialised medicines that are not routinely available through every local supply channel. Treatment selection, dosage and ongoing monitoring must be determined by an appropriately qualified healthcare professional.
 
-This page presents concise information on selected rare genetic disease
-medicines and their availability-related considerations in India.
+Patients with a valid prescription looking to buy generic rare-disease medicines in India may access burosumab-twza through a Named Patient Program, with support available in Mumbai, Delhi, Kolkata and Chennai, across India and worldwide.
 
 ## Burosumab
 
