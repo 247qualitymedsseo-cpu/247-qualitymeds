@@ -1,4 +1,4 @@
-# Immunology Medicines Supply in India Through a Named Patient Program
+# Access Immunology Medicines Supply in India Through Named Patient Program (NPP)
 
 Specialised immunology treatments may be considered when conventional approaches are unsuitable or have not provided the required response. Selection depends on the diagnosed condition, previous treatment, clinical findings and the prescribing specialist’s assessment.
 
