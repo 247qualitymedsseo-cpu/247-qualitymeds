@@ -26,7 +26,7 @@ Revumenib is an oral menin inhibitor developed for specific forms of relapsed or
 
 The medicine is available in multiple tablet strengths. Treatment requires careful monitoring because the prescribed dose and supporting measures can vary according to body weight, concurrent medicines and clinical response.
 
-Read about
+Enquire about 
 [Revumenib availability in India](https://247qualitymeds.com/product/revumenib-tablet/).
 
 ## Important Information
