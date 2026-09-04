@@ -4,7 +4,7 @@ Transplant care may involve specialised medicines intended to support patients a
 
 Patients holding a valid prescription may request these transplant medicines in India through a Named Patient Program. For current price, availability and access information in Mumbai, Delhi, Kolkata and Chennai, across India and worldwide, contact 24/7QualityMeds at **+91 99679 79080**.
 
-## Megalotect
+## Megalotect (Human Cytomegalovirus Immunoglobulin (CMVIG))
 
 Megalotect is a human cytomegalovirus immunoglobulin preparation containing antibodies against CMV. It is administered by intravenous infusion for the prevention of clinical manifestations of CMV infection in patients receiving immunosuppressive treatment, particularly transplant recipients.
 
@@ -12,7 +12,7 @@ The product is available in different infusion volumes and requires refrigerated
 
 View details about [Megalotect availability in India](https://247qualitymeds.com/product/human-cytomegalovirus-immunoglobulin-cmvig/).
 
-## Cytogam
+## Cytogam (Cytomegalovirus Immunoglobulin Intravenous Human)
 
 Cytogam is a human cytomegalovirus immune globulin formulated for intravenous administration. It is used for CMV prevention in connection with certain solid-organ transplants, according to the recipient’s clinical circumstances and the transplant team’s treatment protocol.
 
