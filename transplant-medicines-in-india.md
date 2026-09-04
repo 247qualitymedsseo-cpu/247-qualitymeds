@@ -18,7 +18,7 @@ Cytogam is a human cytomegalovirus immune globulin formulated for intravenous ad
 
 As a human plasma-derived product, Cytogam requires controlled storage, appropriate handling and administration in a supervised medical environment. Availability may depend on the prescribed quantity, supplier stock and sourcing arrangements.
 
-Explore information on [Cytogam access in India](https://247qualitymeds.com/product/cytomegalovirus-immunoglobulin-intravenous-human/).
+Submit your request for [Cytogam price and access in India](https://247qualitymeds.com/product/cytomegalovirus-immunoglobulin-intravenous-human/).
 
 For enquiries concerning the price, availability or access process for Megalotect or Cytogam, contact **24/7QualityMeds at +91 99679 79080**.
 
