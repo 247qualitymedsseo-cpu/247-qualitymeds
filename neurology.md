@@ -10,7 +10,7 @@ Dantrolene is a direct-acting skeletal muscle relaxant. Oral formulations may be
 
 Dantrolene is available in oral and injectable formulations. The appropriate formulation and strength depend on the clinical indication and individual treatment requirements. Medical supervision is necessary because dosing, liver-related precautions, possible interactions and monitoring requirements can vary between patients.
 
-Information concerning [Dantrolene availability in India](https://247qualitymeds.com/product/dantrolene/) includes its formulations, available strengths, storage conditions and access-related considerations.
+Patients looking to [buy Dantrolene in India](https://247qualitymeds.com/product/dantrolene/) can review its available formulations, strengths, storage requirements and medicine access information.
 
 ## Tofersen
 
@@ -18,7 +18,7 @@ Tofersen is an antisense oligonucleotide used for the treatment of amyotrophic l
 
 Tofersen is supplied as a solution for intrathecal administration, meaning that it is injected into the fluid surrounding the spinal cord by an appropriately trained healthcare professional. Genetic confirmation, specialist assessment and ongoing clinical monitoring are important parts of treatment planning.
 
-Information concerning [Tofersen availability in India](https://247qualitymeds.com/product/tofersen/) includes its dosage form, strength, storage requirements and access-related considerations.
+Patients looking to [buy Tofersen in India](https://247qualitymeds.com/product/tofersen/) can review its available strength, storage requirements and medicine access information.
 
 ## Important Information
 
