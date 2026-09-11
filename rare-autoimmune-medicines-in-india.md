@@ -16,4 +16,4 @@ These formulations have different dosing instructions and should not be substitu
 
 **[Buy Upadacitinib 15 mg tablets in India](https://247qualitymeds.com/product/upadacitinib-tablets-oral-solution/)**
 
-Upadacitinib access requires a valid prescription and appropriate medical oversight. Supply depends on the prescribed presentation, supporting clinical documentation, supplier availability and any requirements governing patient-specific import into India.
+Access to **[Upadacitinib in India](https://247qualitymeds.com/product/upadacitinib-tablets-oral-solution/)** requires a valid prescription and appropriate medical oversight. Supply depends on the prescribed presentation, supporting clinical documentation, supplier availability and any requirements governing patient-specific import into India.
