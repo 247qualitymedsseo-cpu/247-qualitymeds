@@ -10,7 +10,7 @@ Upadacitinib is an oral Janus kinase (JAK) inhibitor that modifies intracellular
 
 Eligibility differs by indication and may depend on age, disease severity, previous therapy and response or intolerance to other treatments.
 
-Rinvoq is supplied as extended-release tablets containing **15 mg, 30 mg or 45 mg** of upadacitinib. Rinvoq LQ is a **1 mg/mL oral solution** intended for specific patient groups and indications.
+Rinvoq is supplied as extended-release tablets containing 15 mg, 30 mg or 45 mg of upadacitinib. Rinvoq LQ is a 1 mg/mL oral solution intended for specific patient groups and indications.
 
 These formulations have different dosing instructions and should not be substituted for one another. Treatment selection, baseline assessment, ongoing laboratory monitoring and dosage decisions remain the responsibility of the prescribing specialist.
 
