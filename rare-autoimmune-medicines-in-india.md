@@ -2,7 +2,7 @@
 
 Autoimmune and immune-mediated inflammatory diseases develop when immune signalling becomes dysregulated and contributes to persistent inflammation in affected tissues or organs. In patients whose disease remains active despite earlier treatment, a specialist may assess whether a targeted immunomodulatory medicine is clinically appropriate.
 
-Access to a prescribed medicine may vary according to its regulatory status, formulation, required quantity and available supply. Patients seeking price and availability information in Mumbai, Delhi, Kolkata and Chennai, with coordinated access across India and worldwide, may contact 24/7QualityMeds at **+91 99679 79080** for support through the applicable Named Patient pathway.
+Access to a prescribed medicine may vary according to its regulatory status, formulation, required quantity and available supply. Patients seeking price and availability information in Mumbai, Delhi, Kolkata and Chennai, with coordinated access across India and worldwide, may contact 24/7QualityMeds at **+91 9967979080** for support through the applicable Named Patient pathway.
 
 ## Upadacitinib (Rinvoq and Rinvoq LQ)
 
