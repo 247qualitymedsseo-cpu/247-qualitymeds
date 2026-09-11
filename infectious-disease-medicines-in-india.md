@@ -4,7 +4,7 @@ Specialised anti-infective medicines may be required to manage serious opportuni
 
 Patients holding a valid prescription may request information about these medicines in India through a Named Patient Program. For current price, availability and access information in Mumbai, Delhi, Kolkata and Chennai, or elsewhere in India, contact 24/7QualityMeds at **+91 9967979080**.
 
-## Pentamidine Isethionate
+## Pentamidine Isethionate (Pentacarinat)
 
 Pentamidine isethionate is an anti-infective medicine used in specific clinical circumstances involving Pneumocystis jirovecii pneumonia (PCP). This opportunistic infection primarily affects people with significantly weakened immune systems. The systemic injectable formulation may be considered for active PCP treatment when clinically appropriate, including when other established therapies are unsuitable or not tolerated.
 
