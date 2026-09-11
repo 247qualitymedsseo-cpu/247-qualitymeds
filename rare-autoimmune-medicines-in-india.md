@@ -16,6 +16,4 @@ These formulations have different dosing instructions and should not be substitu
 
 **[Buy Upadacitinib 15 mg tablets in India](https://247qualitymeds.com/product/upadacitinib-tablets-oral-solution/)**
 
-## Total: 1 Generic
-
 The medicine listed on this page requires a valid prescription and appropriate medical oversight. Supply depends on the prescribed presentation, supporting clinical documentation, supplier availability and any requirements governing patient-specific import into India.
