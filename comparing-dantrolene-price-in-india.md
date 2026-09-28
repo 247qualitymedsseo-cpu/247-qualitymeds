@@ -77,7 +77,7 @@ Price, packaging photographs and brand names are useful details to review, but n
 
 Storage instructions should come from the label of the actual product being supplied.
 
-For example, the [US Revonto label][revonto] specifies storage of the unreconstituted product at 20°C to 25°C and advises avoiding prolonged exposure to light. [Ryanodex][ryanodex] also specifies controlled room-temperature storage, with its own permitted temperature excursions. Neither should be assigned a generic shipping condition simply because it is an imported injection.
+For example, the US Revonto label specifies storage of the unreconstituted product at 20°C to 25°C and advises avoiding prolonged exposure to light. Ryanodex also specifies controlled room-temperature storage, with its own permitted temperature excursions. Neither should be assigned a generic shipping condition simply because it is an imported injection.
 
 Ask how the proposed transport arrangements will meet the supplied product’s labelled requirements. Also agree on who will receive the shipment and review its condition on arrival, particularly when delivery is intended for a hospital.
 
