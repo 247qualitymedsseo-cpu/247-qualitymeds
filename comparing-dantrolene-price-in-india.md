@@ -101,9 +101,9 @@ Ask for a written quotation that identifies the product being offered, the full 
 
 A useful quotation should leave you able to answer three questions: **Which product am I receiving? How much is included? What is the total amount payable?** Get those answers in writing before confirming the order.
 
-[dantrium-capsules]: https://dailymed.nlm.nih.gov/dailymed/drugInfo.cfm?setid=57b4eec1-49e1-432c-95ae-0fe36e32d64b "Dantrium capsules: US prescribing information"
-[dantrium-intravenous]: https://dailymed.nlm.nih.gov/dailymed/drugInfo.cfm?setid=4df35098-8702-46be-ac67-30cfdf1aa570 "Dantrium Intravenous: US prescribing information"
-[revonto]: https://dailymed.nlm.nih.gov/dailymed/drugInfo.cfm?setid=f1650487-32bd-4017-b9c2-b38829a531af "Revonto: US prescribing information"
-[ryanodex]: https://dailymed.nlm.nih.gov/dailymed/lookup.cfm?setid=8f7b3ac0-604d-4c78-b545-5e0f8ea3d698 "Ryanodex: US prescribing information"
+[dantrium-capsules]: https://247qualitymeds.com/product/dantrolene/"
+[dantrium-intravenous]: https://247qualitymeds.com/product/dantrolene/"
+[revonto]: https://247qualitymeds.com/product/dantrolene/"
+[ryanodex]: https://247qualitymeds.com/product/dantrolene/"
 [mhaus-access]: https://www.mhaus.org/faqs/how-quickly-must-dantrolene-be-accessible/ "MHAUS: How Quickly Must Dantrolene Be Accessible?"
 [cdsco-form12a]: https://cdscoonline.gov.in/CDSCO/viewForm12A "CDSCO Form 12A: import of small quantities of drugs for personal use"
