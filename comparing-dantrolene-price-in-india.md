@@ -95,7 +95,7 @@ It is also worth agreeing on how you will be informed if the quoted product beco
 
 ## Request a Quote for the Prescribed Dantrolene Product
 
-The **Request Medicine** option on the [24/7QualityMeds dantrolene page] provides a starting point for a product enquiry. Keep the prescription available and specify the requested formulation, strength, quantity and delivery location.
+The **Request Medicine** option on the 24/7QualityMeds dantrolene page provides a starting point for a product enquiry. Keep the prescription available and specify the requested formulation, strength, quantity and delivery location.
 
 Ask for a written quotation that identifies the product being offered, the full quantity, confirmed charges, quotation validity and proposed delivery arrangements. Have any product discrepancy reviewed by the treating doctor or pharmacist before proceeding.
 
