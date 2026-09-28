@@ -53,7 +53,7 @@ For an overseas quotation, check whether the amount in Indian rupees is fixed fo
 
 Ask about the availability of the exact prescribed product. The reply should identify what can be supplied, the quantity being offered and whether the proposed supply requires international procurement.
 
-Where import is proposed, ask which route applies to the request and what documents are needed. India’s [CDSCO Form 12A][cdsco-form12a] process concerns the import of small quantities of medicines for personal use. Its application asks for patient identification, a prescription from a registered medical practitioner, and product details including the medicine name, quantity and pack size.
+Where import is proposed, ask which route applies to the request and what documents are needed. India’s CDSCO Form 12A process concerns the import of small quantities of medicines for personal use. Its application asks for patient identification, a prescription from a registered medical practitioner, and product details including the medicine name, quantity and pack size.
 
 An individual patient request and a hospital stock enquiry should therefore not simply be treated as the same application. Ask for the regulatory requirements to be assessed for the actual purpose of supply.
 
@@ -95,7 +95,7 @@ It is also worth agreeing on how you will be informed if the quoted product beco
 
 ## Request a Quote for the Prescribed Dantrolene Product
 
-The **Request Medicine** option on the [24/7QualityMeds dantrolene page](https://247qualitymeds.com/product/dantrolene/) provides a starting point for a product enquiry. Keep the prescription available and specify the requested formulation, strength, quantity and delivery location.
+The **Request Medicine** option on the [24/7QualityMeds dantrolene page] provides a starting point for a product enquiry. Keep the prescription available and specify the requested formulation, strength, quantity and delivery location.
 
 Ask for a written quotation that identifies the product being offered, the full quantity, confirmed charges, quotation validity and proposed delivery arrangements. Have any product discrepancy reviewed by the treating doctor or pharmacist before proceeding.
 
@@ -105,4 +105,3 @@ A useful quotation should leave you able to answer three questions: **Which prod
 [dantrium-intravenous]: https://247qualitymeds.com/product/dantrolene/"
 [revonto]: https://247qualitymeds.com/product/dantrolene/"
 [ryanodex]: https://247qualitymeds.com/product/dantrolene/"
-[cdsco-form12a]: https://cdscoonline.gov.in/CDSCO/viewForm12A "CDSCO Form 12A: import of small quantities of drugs for personal use"
