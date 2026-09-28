@@ -93,7 +93,7 @@ Where a quotation has an expiry date, check what happens after it passes. Reques
 
 It is also worth agreeing on how you will be informed if the quoted product becomes unavailable. Any proposed change in formulation, strength or quantity should be referred back to the treating team before acceptance.
 
-## Request a Quote for the Prescribed Dantrolene Product
+## Request a Quote for the Prescribed Dantrolene (Dantrium, Revonto, Ryanodex)
 
 The **Request Medicine** option on the 24/7QualityMeds dantrolene page provides a starting point for a product enquiry. Keep the prescription available and specify the requested formulation, strength, quantity and delivery location.
 
