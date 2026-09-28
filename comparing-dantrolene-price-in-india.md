@@ -93,6 +93,6 @@ When arranging dantrolene, it is useful to confirm the prescribed formulation, s
 
 If any part of the quotation is unclear, patients, caregivers or healthcare teams can seek clarification on product availability, documentation requirements, supply arrangements or quotation details.
 
-For assistance with a dantrolene access and supply in India, contact +91-9029269738.
+For assistance with a dantrolene access and supply in India, contact **24/7QualityMeds** at **+91-9029269738**.
 
 [dantrium-capsules]: https://247qualitymeds.com/product/dantrolene/"
