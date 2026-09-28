@@ -11,7 +11,7 @@ Is it the product on the prescription? Does the quotation include the full quant
 | Product | Labelled Formulation and Strength |
 | --- | --- |
 | [Dantrium capsules][dantrium-capsules] | Oral capsules containing 25 mg, 50 mg or 100 mg. |
-| [Dantrium Intravenous][dantrium-intravenous] | Powder for injection containing 20 mg per vial. |
+| Dantrium Intravenous | Powder for injection containing 20 mg per vial. |
 | [Revonto][revonto] | Powder for injection containing 20 mg per vial. |
 | [Ryanodex][ryanodex] | Powder for injectable suspension containing 250 mg per vial. |
 
@@ -96,6 +96,5 @@ Ask for a written quotation that identifies the product being offered, the full 
 A useful quotation should leave you able to answer three questions: **Which product am I receiving? How much is included? What is the total amount payable?** Get those answers in writing before confirming the order.
 
 [dantrium-capsules]: https://247qualitymeds.com/product/dantrolene/"
-[dantrium-intravenous]: https://247qualitymeds.com/product/dantrolene/"
 [revonto]: https://247qualitymeds.com/product/dantrolene/"
 [ryanodex]: https://247qualitymeds.com/product/dantrolene/"
