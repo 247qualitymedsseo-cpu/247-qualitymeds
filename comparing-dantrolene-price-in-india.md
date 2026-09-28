@@ -21,7 +21,7 @@ Here is what to check, and what to ask when the answer is not clear.
 
 These differences matter when you read a quotation. A price for one 20 mg vial cannot be compared directly with a price for one 250 mg vial simply because both contain dantrolene sodium. The treating team needs to confirm the appropriate formulation and required quantity; vial strength alone is not a reason to change the requested product.
 
-The route of administration matters, too. [Oral Dantrium][dantrium-capsules] is labelled for specified forms of chronic spasticity and carries a serious liver-injury warning. [Intravenous dantrolene][dantrium-intravenous] has a role in malignant hyperthermia management. Capsules should not be treated as a lower-priced replacement for emergency injectable treatment.
+The route of administration matters, too. Oral Dantrium is labelled for specified forms of chronic spasticity and carries a serious liver-injury warning. Intravenous dantrolene has a role in malignant hyperthermia management. Capsules should not be treated as a lower-priced replacement for emergency injectable treatment.
 
 > **An active malignant hyperthermia emergency requires immediate hospital treatment. It must not wait for a supplier quotation, import approval or delivery.** This article concerns advance supply enquiries, not emergency treatment arrangements.
 
