@@ -23,7 +23,7 @@ These differences matter when you read a quotation. A price for one 20 mg vial c
 
 The route of administration matters, too. [Oral Dantrium][dantrium-capsules] is labelled for specified forms of chronic spasticity and carries a serious liver-injury warning. [Intravenous dantrolene][dantrium-intravenous] has a role in malignant hyperthermia management. Capsules should not be treated as a lower-priced replacement for emergency injectable treatment.
 
-> **An active malignant hyperthermia emergency requires [immediate hospital treatment][mhaus-access]. It must not wait for a supplier quotation, import approval or delivery.** This article concerns advance supply enquiries, not emergency treatment arrangements.
+> **An active malignant hyperthermia emergency requires immediate hospital treatment. It must not wait for a supplier quotation, import approval or delivery.** This article concerns advance supply enquiries, not emergency treatment arrangements.
 
 ## Find Out Whether the Price Is Per Vial or Per Pack
 
@@ -105,5 +105,4 @@ A useful quotation should leave you able to answer three questions: **Which prod
 [dantrium-intravenous]: https://247qualitymeds.com/product/dantrolene/"
 [revonto]: https://247qualitymeds.com/product/dantrolene/"
 [ryanodex]: https://247qualitymeds.com/product/dantrolene/"
-[mhaus-access]: https://www.mhaus.org/faqs/how-quickly-must-dantrolene-be-accessible/ "MHAUS: How Quickly Must Dantrolene Be Accessible?"
 [cdsco-form12a]: https://cdscoonline.gov.in/CDSCO/viewForm12A "CDSCO Form 12A: import of small quantities of drugs for personal use"
