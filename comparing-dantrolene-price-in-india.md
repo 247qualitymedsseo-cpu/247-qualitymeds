@@ -29,7 +29,7 @@ The route of administration matters, too. [Oral Dantrium][dantrium-capsules] is 
 
 Before comparing the **dantrolene injection price**, ask the supplier to state the unit clearly. “One vial,” “one carton” and “the complete requested quantity” should not be left open to interpretation.
 
-For example, the US labels for [Dantrium Intravenous][dantrium-intravenous] and [Revonto][revonto] show six-vial cartons. Those labelled presentations illustrate why a quotation should identify the actual pack being supplied rather than use “one box” without further detail.
+For example, the US labels for Dantrium Intravenous and Revonto show six-vial cartons. Those labelled presentations illustrate why a quotation should identify the actual pack being supplied rather than use “one box” without further detail.
 
 Ask for the product name, strength per vial, number of vials per carton and total number of vials on the quotation. For capsules, check the strength per capsule, capsules per bottle and number of bottles.
 
