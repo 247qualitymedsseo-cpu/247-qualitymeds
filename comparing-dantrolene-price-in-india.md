@@ -87,12 +87,12 @@ Where a quotation has an expiry date, check what happens after it passes. Reques
 
 It is also worth agreeing on how you will be informed if the quoted product becomes unavailable. Any proposed change in formulation, strength or quantity should be referred back to the treating team before acceptance.
 
-## Request a Quote for the Prescribed Dantrolene (Dantrium, Revonto, Ryanodex)
+## Request Prescribed Dantrolene price in India (Dantrium, Revonto, Ryanodex)
 
-The **Request Medicine** option on the 24/7QualityMeds dantrolene page provides a starting point for a product enquiry. Keep the prescription available and specify the requested formulation, strength, quantity and delivery location.
+When arranging dantrolene, it is useful to confirm the prescribed formulation, strength, quantity, pack details, expected delivery and total payable amount before proceeding.
 
-Ask for a written quotation that identifies the product being offered, the full quantity, confirmed charges, quotation validity and proposed delivery arrangements. Have any product discrepancy reviewed by the treating doctor or pharmacist before proceeding.
+If any part of the quotation is unclear, patients, caregivers or healthcare teams can seek clarification on product availability, documentation requirements, supply arrangements or quotation details.
 
-A useful quotation should leave you able to answer three questions: **Which product am I receiving? How much is included? What is the total amount payable?** Get those answers in writing before confirming the order.
+For assistance with a dantrolene access and supply in India, contact +91-9029269738.
 
 [dantrium-capsules]: https://247qualitymeds.com/product/dantrolene/"
