@@ -2,11 +2,7 @@
 
 You ask for a dantrolene quotation and receive an amount. Before deciding whether to proceed, there is a straightforward question to ask: what exactly does that amount cover?
 
-Is it the product on the prescription? Does the quotation include the full quantity requested? Are delivery charges included, or will those be confirmed later?
-
-When checking the **[dantrolene sodium price in India](https://247qualitymeds.com/product/dantrolene/)**, keep the prescription beside the quotation. Look at the formulation, strength and quantity before comparing the final amount. A missing detail at this stage is worth clarifying before payment.
-
-Here is what to check, and what to ask when the answer is not clear.
+Is it the product on the prescription? Does the quotation include the full quantity requested? Are delivery charges included, or will those be confirmed later? When checking the **[dantrolene sodium price in India](https://247qualitymeds.com/product/dantrolene/)**, keep the prescription beside the quotation. Look at the formulation, strength and quantity before comparing the final amount. A missing detail at this stage is worth clarifying before payment. Here is what to check, and what to ask when the answer is not clear.
 
 ## Start With the Product on the Prescription
 
