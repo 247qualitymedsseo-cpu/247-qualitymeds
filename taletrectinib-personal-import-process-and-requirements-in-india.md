@@ -18,7 +18,7 @@ The efficacy of taletrectinib was evaluated in the TRUST-I and TRUST-II clinical
 
 Clinical response rates do not guarantee an individual outcome, and results from separate trial groups should not be interpreted as a direct comparison between treatments. An oncologist must assess the relevance of these findings to each patient's circumstances.
 
-## [Taletrectinib Availability in India](https://247qualitymeds.com/product/taletrectinib/)
+## [Taletrectinib Availability](https://247qualitymeds.com/product/taletrectinib/) in India
 
 The availability of a medicine internationally does not automatically mean that it is approved for commercial sale or routinely stocked in India. Taletrectinib received FDA approval in the United States in 2025, but patients seeking treatment in India should independently confirm its current Indian regulatory status and local availability before making procurement arrangements.
 
