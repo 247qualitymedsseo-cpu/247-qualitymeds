@@ -73,7 +73,7 @@ Ibtrozi is supplied as 200 mg capsules in bottles containing 30 capsules, with t
 
 Patients should check that the received medicine matches the prescription and accompanying documentation, that the packaging is intact, and that the expiry date and product details are legible. Any concerns about damaged packaging, unexpected labelling, or the condition of the shipment should be raised with the supplier and treating pharmacist before the medicine is used.
 
-## What Influences the Price of Taletrectinib in India?
+## What Influences the (Price of Taletrectinib)[https://247qualitymeds.com/product/taletrectinib/] in India?
 
 The final cost of obtaining taletrectinib in India can vary because patient-specific imports involve more than the international medicine price alone. Factors may include the supplier's quotation, country of sourcing, currency exchange rates, shipping and handling, insurance where applicable, customs-related expenses, regulatory documentation, and applicable taxes.
 
