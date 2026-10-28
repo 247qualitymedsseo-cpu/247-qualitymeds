@@ -1,6 +1,6 @@
 # Taletrectinib in India: How Treatment Access and Overseas Sourcing Work
 
-For patients in India, accessing taletrectinib may involve additional steps when the medicine is not available through domestic pharmaceutical distribution channels. Overseas sourcing, prescription verification, and compliance with applicable import regulations become important considerations in such cases. Understanding how these processes work can help patients and caregivers prepare the necessary documentation, discuss treatment options with their oncologist, and make informed decisions about medicine procurement.
+For patients looking to [buy taletrectinib](https://247qualitymeds.com/product/taletrectinib/) in India, additional steps may be needed if the medicine is unavailable through domestic pharmaceutical distribution channels. Overseas sourcing, prescription verification, and compliance with applicable import regulations become important considerations in such cases. Understanding how these processes work can help patients and caregivers prepare the necessary documentation, discuss treatment options with their oncologist, and make informed decisions about medicine procurement.
 
 ## What Is Taletrectinib (Ibtrozi)?
 
