@@ -14,7 +14,7 @@ The recommended dosage is 120 mg orally once daily, with or without food. Treatm
 
 ## [Belzutifan Price in India](https://247qualitymeds.com/product/belzutifan/)
 
-The cost of Belzutifan in India may vary depending on how the medicine is sourced and supplied. When a medicine is obtained from an international market rather than through an established domestic distribution network, its price may not correspond directly to the overseas retail price.
+The [Belzutifan cost](https://247qualitymeds.com/product/belzutifan/) in India may vary depending on how the medicine is sourced and supplied. When a medicine is obtained from an international market rather than through an established domestic distribution network, its price may not correspond directly to the overseas retail price.
 
 The country of procurement is one important consideration. Different markets may have different pricing structures, distribution arrangements and supply conditions. The availability of the required strength and pack quantity can also influence the procurement cost.
 
