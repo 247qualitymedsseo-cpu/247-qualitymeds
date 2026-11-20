@@ -12,7 +12,7 @@ Belzutifan is indicated for adults with VHL disease who require treatment for as
 
 The recommended dosage is 120 mg orally once daily, with or without food. Treatment is generally continued until disease progression or unacceptable toxicity, as determined by the treating specialist.
 
-## Understanding Belzutifan Pricing in India
+## [Belzutifan Price in India](https://247qualitymeds.com/product/belzutifan/)
 
 The cost of Belzutifan in India may vary depending on how the medicine is sourced and supplied. When a medicine is obtained from an international market rather than through an established domestic distribution network, its price may not correspond directly to the overseas retail price.
 
