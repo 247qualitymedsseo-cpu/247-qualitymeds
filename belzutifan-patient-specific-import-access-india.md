@@ -1,4 +1,4 @@
-# Your Guide to Access Belzutifan in India
+# Your Guide to [Access Belzutifan](https://247qualitymeds.com/product/belzutifan/) in India
 
 Belzutifan, marketed under the brand name Welireg, is a targeted cancer therapy used for specific conditions, including von Hippel-Lindau (VHL) disease-associated tumours and advanced renal cell carcinoma (RCC). As an oral hypoxia-inducible factor-2 alpha (HIF-2α) inhibitor, it offers a treatment option for patients who meet the approved indications. However, access to the medicine can be challenging in countries where it is not routinely available through local commercial channels.
 
