@@ -2,7 +2,7 @@
 
 You may arrive for your next Ziihera infusion expecting treatment to continue as planned, only to hear that your doctor recommends waiting. Perhaps diarrhoea has not settled, a heart assessment needs reviewing or a reaction during the previous infusion calls for a different approach.
 
-For patients receiving [**Ziihera in India**](https://247qualitymeds.com/product/zanidatamab-hrii/), a change in treatment can bring understandable questions. Why is a pause necessary? What needs to improve? Will the next infusion be different?
+For patients receiving [**Ziihera in India**](https://247qualitymeds.com/product/zanidatamab-hrii/) , a change in treatment can bring understandable questions. Why is a pause necessary? What needs to improve? Will the next infusion be different?
 
 With Ziihera (zanidatamab-hrii), the answer depends on what prompted the change. The US FDA prescribing information sets out different steps for different adverse reactions, helping clinicians decide when to continue, when to wait and when treatment should stop.
 
