@@ -67,4 +67,4 @@ After recovery, the next question is how treatment will resume. The reduced dose
 
 The FDA label recommends permanent discontinuation if the initial dose reduction cannot be tolerated. These are prescribing instructions for the treating team, rather than dose choices for patients to make themselves.
 
-Contact **24/7QualityMeds** at **+91 9967979080** to [**buy zanidatamab**](https://247qualitymeds.com/product/zanidatamab-hrii/) in India.
+Contact 24/7QualityMeds at **+91 9967979080** to [**buy zanidatamab**](https://247qualitymeds.com/product/zanidatamab-hrii/) in India.
